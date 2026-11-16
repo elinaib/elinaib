@@ -13,7 +13,7 @@
 <p align="center"
 
   
-[pronouns](https://en.pronouns.page/@wifelyfun)  ̥̈ [ strawpage ](https://eliburger.straw.page)  ̥̈ ̥̈[ atabook ]( atabook.princessmiu.org)  ̥̈
+[pronouns](https://en.pronouns.page/@wifelyfun)  ̥̈ [ strawpage ](https://eliburger.straw.page)  ̥̈ ̥̈[ atabook ](https://princessmiu.atabook.org)
  
 <p align="center">
  
