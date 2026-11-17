@@ -17,7 +17,7 @@
  
 <p align="center">
  
-<img src="https://i.imgur.com/EYqYa6G.png" width="750">
+<img src="https://miumimiumyo.carrd.co/assets/images/image04.png?v=5e7935e0" width="750">
 
  <p align="center"
 
